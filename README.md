@@ -8,9 +8,9 @@
 <details>
 <summary> $dni$ </summary>
 $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom$ $chat$ $inviting$, $roleplay$ <br/> $hazbin$ $hotel$, $helluva$ boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $untill$ $its$ $not$ $for$ $fun$
-</details>
+<details>
 <summary> $about$ $me$ </summary>
-$daddy$ $told$ $me$ $im$ $the$ $best$ 
+proud daddy's puppyboy 
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
 <img src="https://psv4.userapi.com/s/v1/d2/TRvYDUmo1EfjuyrUuRTKesKro16PFCKUHYOnRToD2fuztxOS8EK5oEs1cmf_94feXYRW2zej4fyFdskjm7PapIRlkjYLonfgNYPzYcD4SMv7xaKpR5kt_6s00eAuWKuweTBJyRARLb9q/1000050111_compressed.gif" width="1200"
  <img src="https://psv4.userapi.com/s/v1/d2/t2Uap0mvwj-_UzOvIpx3t1bsyyjExbkr4_9QoSsOi-7xQcch0oUWUrHcTxS0I5iAOqdao4nOfLZ2hkhjrHnA8dS-2P6qOeOMs17K9-fzQJWIpNw-pTePzezPNQWxgsEybUaL8TzJ_2rF/GIF_20260703_033221_654.gif"/>
