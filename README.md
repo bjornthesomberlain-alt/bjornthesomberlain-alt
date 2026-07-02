@@ -11,8 +11,8 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 </details>
 <details>
 <summary> $about$ $me$ </summary>
-proud daddy's<a href="https://github.com/qphsrnotfound-alt"></a>
- puppyboy for 1 year
+<p>proud <a href="https://github.com/qphsrnotfound-alt">daddy's</a> puppyboy </p>
+ 
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
 <img src="https://psv4.userapi.com/s/v1/d2/TRvYDUmo1EfjuyrUuRTKesKro16PFCKUHYOnRToD2fuztxOS8EK5oEs1cmf_94feXYRW2zej4fyFdskjm7PapIRlkjYLonfgNYPzYcD4SMv7xaKpR5kt_6s00eAuWKuweTBJyRARLb9q/1000050111_compressed.gif" width="1200"
