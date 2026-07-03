@@ -28,7 +28,7 @@ $minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$, $romantiz
 <details>
 <summary>$main$ $fandom$</summary>
 <p align="center">$genshin$</p> 
- <p>$six$ $years$ $of$ $hating$ $this$ $game$ $against$ $a$ $three-day$ $non-sleep$ $marathon$ $of$ $grinding$ $pulls$ $for$ $a$ $random$ $psycho$ $twink$... $whats$ $wrong$ $with$ $me$?</p>
+ <p align="center">$six$ $years$ $of$ $hating$ $this$ $game$ $against$ $a$ $three-day$ $non-sleep$ $marathon$ $of$ $grinding$ $pulls$ $for$ $a$ $random$ $psycho$ $twink$... $whats$ $wrong$ $with$ $me$?</p>
 <p align="center">$add$ $me$, $please$!!!!</p>
 <p align="center"> UID: 784112109 </p>
  
