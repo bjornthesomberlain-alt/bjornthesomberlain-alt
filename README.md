@@ -21,12 +21,12 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
  </details>
 <details>
 <summary>$games$</summary>
-<p> stalker, mafia, metro, hotline miami, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, genshin </p>
+<p> $stalker$ ; $mafia$ ; $metro$ ; $hotline$ $miami$ ; $postal$ ; $metal$ $gear$ ; $silent$ $hill$ ; $metalocalypse$ ; $blood$ ; $doom$ ; $duke$ $nukem$ ; $bayonetta$ ; $devil$ $may$ $cry$ ; $half-life$ ; $portal$ ; $dark$ $souls$ ; $max$ $payne$ ; $witcher$ $games$ $n$ $books$ ; $call$ $of$ $duty$ ; $octodad$ ; $genshin$ </p>
  </details>
 <details>
 <summary>$main$ $fandom$</summary>
 <p>$genshin$</p> 
- <p>the six years of hating this game against a three-day non-sleep marathon of grinding pulls for random psycho twink whats wrong with me</p>
+ <p>$the$ $six$ $years$ $of$ $hating$ $this$ $game$ $against$ $a$ $three-day$ $non-sleep$ $marathon$ $of$ $grinding$ $pulls$ $for$ $random$ $psycho$ $twink$ $whats$ $wrong$ $with$ $me$?</p>
 <p>$add$ $me$, $please$!!!!</p>
 <p> UID: 784112109 </p>
  
