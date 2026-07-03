@@ -38,3 +38,6 @@ $minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$, $romantiz
  <img src="https://psv4.userapi.com/s/v1/d2/t2Uap0mvwj-_UzOvIpx3t1bsyyjExbkr4_9QoSsOi-7xQcch0oUWUrHcTxS0I5iAOqdao4nOfLZ2hkhjrHnA8dS-2P6qOeOMs17K9-fzQJWIpNw-pTePzezPNQWxgsEybUaL8TzJ_2rF/GIF_20260703_033221_654.gif"/>
  
  <p align="center"><img src="https://psv4.userapi.com/s/v1/d2/bLFHxOUGWpt2QaX7w7iGMGt-vyvVy5309smXhr1u6n4GOR6jAB8VQJZHVGjCPXmT9UzJ4QHa_h8ABh5eI-0Pe_wDL1Wk-YxohHzk1XsMNX63A7H7G5xoE8900ZVUaf6FV7Z19_f3NHrf/IMG_20260703_021946.png" width="1000">
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=bjornthesomberlain-alt&label=eyes+on+me&color=f5e6d3&style=flat-square" alt="kills" />
