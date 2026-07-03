@@ -7,7 +7,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $18$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
 <details>
 <summary> $dni$ </summary>
-$minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
+$minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
 </details>
 <details>
 <summary> $about$ $me$ </summary>
