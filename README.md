@@ -7,16 +7,26 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $18$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
 <details>
 <summary> $dni$ </summary>
-$minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom$ $chat$ $inviting$, $roleplay$ <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $untill$ $its$ $not$ $for$ $fun$
+$minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom$ $chat$ $inviting$, $roleplay$ <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
 </details>
 <details>
 <summary> $about$ $me$ </summary>
 <p>$proud$ <a href="https://github.com/qphsrnotfound-alt">daddy's</a> $puppyboy$ </p>
 <p>$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$</p>
- 
-<p>$sometimes$ $my$ $demeanor$ $may$ $be$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
+<p>$sometimes$ $my$ $demeanor$ $may$ $be$ $non$ $negativelly$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
+ </details>
 <details>
 <summary>$music$</summary>
+<p> david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish ( only with tarja on vocal ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ; sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ; garbage ; katatonia ; frank sinatra & nancy sinatra ; elvis presley ; diabarha ; dope stars inc. ; mareux ; and one ; combichrist ; aquarium : DDT ; splin ; lumen ; ludovico technique </p>
+ </details>
+<details>
+<summary>$games$</summary>
+<p> stalker, mafia, metro, hotline miami, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, genshin </p>
+ </details>
+<details>
+<summary>$main$ $fandom$</summary>
+<p>$genshin$</p> 
+ <p>the six years of hating this game against a three-day non-sleep marathon of grinding pulls for random psycho twink whats wrong with me</p>
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
