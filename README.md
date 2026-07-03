@@ -11,7 +11,8 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 </details>
 <details>
 <summary> $about$ $me$ </summary>
-<p>proud <a href="https://github.com/qphsrnotfound-alt">daddy's</a> puppyboy </p>
+<p>$proud$ <a href="https://github.com/qphsrnotfound-alt">$daddy's$</a> $puppyboy$ </p>
+$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
