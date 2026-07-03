@@ -12,8 +12,9 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 <details>
 <summary> $about$ $me$ </summary>
 <p>$proud$ <a href="https://github.com/qphsrnotfound-alt">daddy's</a> $puppyboy$ </p>
-$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$
-$sometimes$ $my$ $demeanor$ $may$ $be$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $not$ $to$ $be$ $close$
+<p>$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$</p>
+ 
+<p>$sometimes$ $my$ $demeanor$ $may$ $be$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
