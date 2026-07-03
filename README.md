@@ -7,7 +7,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $18$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
 <details>
 <summary> $dni$ </summary>
-$minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
+$minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $anime$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
 </details>
 <details>
 <summary> $about$ $me$ </summary>
@@ -25,10 +25,10 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
  </details>
 <details>
 <summary>$main$ $fandom$</summary>
-<p>$genshin$</p> 
- <p>$the$ $six$ $years$ $of$ $hating$ $this$ $game$ $against$ $a$ $three-day$ $non-sleep$ $marathon$ $of$ $grinding$ $pulls$ $for$ $random$ $psycho$ $twink$ $whats$ $wrong$ $with$ $me$?</p>
-<p>$add$ $me$, $please$!!!!</p>
-<p> UID: 784112109 </p>
+<p align="center">$genshin$</p> 
+ <p>$six$ $years$ $of$ $hating$ $this$ $game$ $against$ $a$ $three-day$ $non-sleep$ $marathon$ $of$ $grinding$ $pulls$ $for$ $random$ $psycho$ $twink$... $whats$ $wrong$ $with$ $me$?</p>
+<p align="center">$add$ $me$, $please$!!!!</p>
+<p align="center"> UID: 784112109 </p>
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
