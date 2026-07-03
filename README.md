@@ -7,13 +7,14 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $18$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
 <details>
 <summary> $dni$ </summary>
-$minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
+$minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$,$romantize$ $terrorism$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, $political$ $discussions$<br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
 </details>
 <details>
 <summary> $about$ $me$ </summary>
 <p>$proud$ <a href="https://github.com/qphsrnotfound-alt">daddy's</a> $puppyboy$ </p>
 <p>$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$</p>
 <p>$sometimes$ $my$ $demeanor$ $may$ $be$ $jokingly$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
+ <p>if i hide you its only cause you cover all of my screen</p>
  </details>
 <details>
 <summary>$music$</summary>
