@@ -27,6 +27,8 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 <summary>$main$ $fandom$</summary>
 <p>$genshin$</p> 
  <p>the six years of hating this game against a three-day non-sleep marathon of grinding pulls for random psycho twink whats wrong with me</p>
+<p>$add$ $me$, $please$!!!!</p>
+<p> UID: 784112109 </p>
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
