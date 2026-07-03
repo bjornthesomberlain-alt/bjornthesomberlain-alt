@@ -13,7 +13,7 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 <summary> $about$ $me$ </summary>
 <p>$proud$ <a href="https://github.com/qphsrnotfound-alt">daddy's</a> $puppyboy$ </p>
 <p>$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$</p>
-<p>$sometimes$ $my$ $demeanor$ $may$ $be$ $non$ $negativelly$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
+<p>$sometimes$ $my$ $demeanor$ $may$ $be$ $jokingly$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
  </details>
 <details>
 <summary>$music$</summary>
