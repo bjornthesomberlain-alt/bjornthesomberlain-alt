@@ -15,6 +15,8 @@ $minors$<br/>$irl's$<br/>$systems$<br/>$ppl$ $that$ $fake$ $their$ $disorders$<b
 <p>$the$ $most$ $thing$ $i$ $like$ $and$ $practice$ $is$ $the$ $art$ $of$ $photography$ $and$ $painting$</p>
  
 <p>$sometimes$ $my$ $demeanor$ $may$ $be$ $gross$, $so$ $if$ $youre$ $mentally$ $sensitive$ $its$ $better$ $to$ $stay$ $away$</p>
+<details>
+<summary>$music$</summary>
  
 </details>
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
