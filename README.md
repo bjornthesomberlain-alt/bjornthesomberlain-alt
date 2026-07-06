@@ -4,7 +4,7 @@
  <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" width="1000"/>
  <img align="left" src="https://sun9-32.userapi.com/s/v1/ig2/kQ4_o-Yu9qu-Iq-0DwNc1ZToZMuDQG5e17o70yzOvv3VKdWjUFszJKMUyfcWY_l9v8h3PuAtYai4SMAtXEOaWhMa.jpg?quality=95&as=32x34,48x51,72x77,108x115,160x171,240x256,360x384,480x512,540x576,640x683,720x768,1080x1152,1280x1365,1440x1536,1920x2048&from=bu&u=tpFH8EsrMV76Fu-jvIIcUDrdo0BzHkj1O_VZuo9yzew&cs=1920x0" witdh="450" height="490">
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $18$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $bjørn / dashie$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $19🎉$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $he/they$
 <details>
 <summary> $dni$ </summary>
 $minors$, $irl's$, $systems$, $ppl$ $that$ $fake$ $their$ $disorders$, $romantize$ $terrorism$<br/>$guilds$, $clans$, $fandom/roleplay$ $chat$ $inviters$, $political$ $discussions$, $trauma$ $talks$ <br/> $hazbin$ $hotel$, $helluva$ $boss$, $mouthwashing$, $dsmp$, $south$ $park$, $rick$ $and$ $morty$, $homestuck$, $country$ $humans$, $lol$, $fnaf$, $k-pop$ <br/> $flirting$ $with$ $me$ $if$ $its$ $not$ $for$ $fun$
